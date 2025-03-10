@@ -1,2 +1,2 @@
 # Lab7
-ali g 
+aliiiiiiiiiiiiiiiiiiiii
